@@ -3,3 +3,4 @@ Homelab 3 számítógép billentyűzet, ahogy Papp Peti megálmodta/ Vintage hun
 
 ![Képernyőkép 2024-10-29 204349](https://github.com/user-attachments/assets/d2f0496a-6d8e-4bf4-9de5-c92e1b8fe81d)
 
+![image](https://github.com/user-attachments/assets/7c237aa0-fe7c-4449-be9c-0dddd33782c9)
